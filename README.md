@@ -1,6 +1,6 @@
 ### Hi there, I'm Szymon
 
-## I'm student and gamer
+## I'm student
  
 ### Languages and Tools:
 
